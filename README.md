@@ -1,5 +1,5 @@
 DISCONTINUED DUE TO DISINTEREST.
-The game is by and for fascists anyway.
+And also war. Would be nice to work on more someday ^^
 
 ---
 
